@@ -1,4 +1,4 @@
- # I’m @drpdeadredd
+ # @drpdeadredd
 
 > "If I could drop dead right now, I'd be the happiest man alive." -Samuel Goldwyn
 
